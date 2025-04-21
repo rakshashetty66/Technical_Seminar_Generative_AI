@@ -1,0 +1,1 @@
+# Technical_Seminar_Generative_AI
